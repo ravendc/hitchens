@@ -1,0 +1,13 @@
+---
+layout: post
+title: Contacto
+---
+
+which I speak took place, and yet
+it is with diffidence that I allude to them. For a long time, even
+with the utmost discretion and reticence, it would have been
+impossible to make the facts public; but now the principal person
+concerned is beyond the reach of human law, and with due suppression
+the story may be told in such fashion as to injure no one. It records
+an absolutely unique experience in the career both of Mr. Sherlock
+Holmes and of mys
