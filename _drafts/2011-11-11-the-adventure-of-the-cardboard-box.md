@@ -1,7 +1,7 @@
 ---
 layout: post
-title: "este es un titulo"
-author: "el autor"
+title: "The Adventure of the Cardboard Box"
+author: "Arthur Conan Doyle"
 categories: literature
 ---
 
