@@ -16,3 +16,4 @@ gem 'github-pages', versions['github-pages']
 gem 'kramdown', versions['kramdown']
 gem 'rake'
 
+gem 'wdm', '~> 0.1.0'
