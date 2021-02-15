@@ -4,7 +4,7 @@ title: "Sueños con atraso"
 author: "R"
 ---
 
-No sé, ni estoy segura de si esto le pasa a todo el mundo o solo a mi, pero me he dado cuenta de que los sueños e ilusiones que con tanta esperanza trabajo en corazón, mente y pensamiento, llegan tarde, demasiado tarde para quererlos cuando llegan.
+No sé si esto le pasa a todo el mundo o solo a mi, pero me he dado cuenta de que los sueños e ilusiones que con tanta esperanza trabajo en corazón, mente y pensamiento, llegan tarde, demasiado tarde para quererlos cuando llegan.
 
 De algun modo creo es el orden natural de las cosas, pues la mente aunque poderosa puede ser un acérrimo enemigo si no se le controla.
 
@@ -28,7 +28,7 @@ Tarde o temprano, llegará...¿Estaremos preparados para aceptar ese deseo cuand
 
 Mas valdría cuidar de a dónde nos lleven nuestros anhelos, y mejor aprender a movernos con nuestras pocas e insignificantes fuerzas. Quizá un día nos demos cuenta que los deseos no tienen voluntad ni piernas propias, en cambio, nosotros podemos desarrollar esas dos unicas cosas que necesitamos para movernos, pero si no nos llevan al lado de la riqueza, la fama, la fortuna o ese pretendido y temporal estado de felicidad que tanto deseamos, nos encontraremos en un lugar más libre de problemas y cargas inecesarias, libres de sorpresas inesperadas. Finalmente cada quien elige desde donde trabaja sus más profundos deseos y cuánta energía destina a la realidad y a la fantasía.
 
-Hoy la frase "que se cumplan todos tus deseos" me parece de harto riesgo, por ello solo puede desear "que llegue a tí únicamente aquello con lo que puedas lidiar"
+Hoy la frase "que se cumplan todos tus deseos" me parece de harto riesgo, por ello solo puedo desearte "que llegue a tí únicamente aquello con lo que puedas lidiar"
 
 
 
