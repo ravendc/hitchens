@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Sueños proyectivos"
+title: "Proyecciones"
 author: "R"
 ---
 He vuelto a tener uno de esos sueños misteriosos que se disuelven en el aire apenas despierto.
